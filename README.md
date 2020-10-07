@@ -1,4 +1,4 @@
-# 梯子 - 推荐几个好用的
+# 梯子 - 推荐几个好用的梯子
 梯子, 电脑梯子, PC好用梯子, 推荐翻墙梯子软件, 科学上网梯子工具, 靠谱iPhone/Android/Mac/Linux/PC都可以用的梯子
 
 # 1.Panda梯子 [Panda官网地址](https://www.panhdpe.xyz/r/22216799)
